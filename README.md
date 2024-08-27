@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @rjjjjr
-- 👀 I’m interested in men 
-- 🌱 I’m currently learning how to make a grilled cheese
-- 📫 How to reach me discord:rjjjr.
-- ⚡ Fun fact: kankan
+- 📫 How to reach me discord:rjjjr
