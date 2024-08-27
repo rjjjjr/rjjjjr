@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @rjjjjr
-- 📫 How to reach me discord:rjjjr
+- 📫 How to reach me discord:rjjjr.
